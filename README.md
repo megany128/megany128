@@ -1,1 +1,1 @@
-⋆˙𓍊₊ ⊹˚ flibertigibetting... ִֶָ ⊹ 𓍊 ⋆˙₊
+⭑｡𖦹°‧ exploring... ִֶָ⭑｡𖦹°‧
